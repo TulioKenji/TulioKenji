@@ -1,1 +1,1 @@
-Bachelor of Technology in System analysis and development student at IFSP
+Technology in System Analysis and Development student at IFSP
